@@ -3,8 +3,8 @@
 
 
 
-
-
+<img width="1156" height="728" alt="image" src="https://github.com/user-attachments/assets/0c7ad8d6-c13f-48df-948c-3c8e7d03e6db" />
+ 프로필 하단 소셜 계정에 리트코드 주소를 첨부하였습니다. 
 
 
 
